@@ -23,3 +23,5 @@
 *  https://metroplex360.com/
 *  https://scene3d.co.uk/
 *  https://elevate360.ca
+*  https://home3d.us/
+*  https://caidenmedia.com
